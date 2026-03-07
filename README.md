@@ -1,1 +1,0 @@
-# MyEcoNotes-Taical-data
